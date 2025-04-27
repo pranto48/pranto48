@@ -2,7 +2,7 @@
 
 🎯 **IT Professional | Web Designer | Network & Security Specialist**
 
-📍 Based in Gazipur, Bangladesh
+📍 Based in Dhaka, Bangladesh
 
 ---
 
