@@ -47,8 +47,7 @@ I'm an experienced IT professional and web designer with over a decade of expert
 - **Website**: [arifmahmud.com](https://arifmahmud.com)
 - **Blog**: [blog.arifmahmud.com](https://blog.arifmahmud.com)
 - **GitHub**: [github.com/pranto48](https://github.com/pranto48)
-- **Behance**: [behance.net/arifmahmud89c1](https://www.behance.net/arifmahmud89c1)
-- **YouTube**: [youtube.com/c/arifmahmud](https://www.youtube.com/c/arifmahmud)
+- **YouTube**: [youtube.com/c/arifmahmud](https://www.youtube.com/c/arifmahmudpranto)
 
 ---
 
